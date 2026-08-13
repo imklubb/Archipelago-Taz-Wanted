@@ -1,3 +1,6 @@
+## Please note, this was created with the assistance of AI. For more details, click the message below
+- https://discord.com/channels/731205301247803413/1509296168931164190/1537273863300452424
+
 # Taz Wanted — Setup Guide
 
 ## What you need
